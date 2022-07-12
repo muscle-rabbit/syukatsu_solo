@@ -1,0 +1,1 @@
+# syukatsu_solo
