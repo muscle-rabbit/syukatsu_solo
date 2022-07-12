@@ -1,1 +1,1 @@
-# syukatsu_solo
+# mamasan_zaitaku
